@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @narasimhareddyputta94
+- 👀 I’m interested in ... learning interesing things
+- 🌱 I’m currently learning ... masters in computer science
+- 💞️ I’m looking to collaborate on ... software development
+- 📫 How to reach me ... my number 3127921903
